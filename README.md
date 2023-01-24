@@ -1,1 +1,1 @@
-# Garry-s-mod-image-files
+# Garrys-mod-image-files
